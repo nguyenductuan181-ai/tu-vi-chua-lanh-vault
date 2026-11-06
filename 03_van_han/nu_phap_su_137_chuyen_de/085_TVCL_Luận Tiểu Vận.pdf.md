@@ -1,0 +1,48 @@
+# TVCL_Luận Tiểu Vận.pdf
+
+- Source ID: 515fc939-87a1-4878-8b1e-8e0cdca19d0d
+- Source Type: pdf
+- Exported At: 2026-10-12 08:46:00
+- Total Characters: 2416
+
+---
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv0Axu-ldjzySemMRMxzYacs03zbFubxVCzO0vld86AvX4R1hEEb9C9Ra38tQ5hHlZiKWYDEBVJi8-lpGDE7HeGs94vpgMOhySGKk3CHMs1haoiEiaSTgdahYjC4Emnc3J0n0VnrxQ=w2030-h1142-v0
+
+c4e377a5-5591-4f3b-88a4-afb895d9be14
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv2ELNBHFGv7SHSMxC_ksd_w10qbhiSi8dbEzsGgWGPLFYW8AZ6oXz9uCkC7lZov4tqwl2VNYelYaIE3VWKUx3EoxnKa3VfNFwPNGGbFd8Y_a7IJloGMrDVKwXVF3jgxUm1kSyXm0w=w2030-h1142-v0
+
+05783eeb-4529-4320-a242-e452a0751a89
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv1y3azMo1yeaWJCmbH8SSNdtYfgubxBfN4EQ3IZaVEm8d8HQhaQ4-VYq_4KOfUcQX0i1hnOSe216e5Bb8s1WJEaCTwaOzlhME4C8oZhb_Gdsl1d8Y5LFypRIscSc4eMZeRADUNiEg=w2030-h1142-v0
+
+e0793ce8-611d-498e-83ec-f5b3c7b0ff7b
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv3JhvEaHZuX2hgmwjKgBIWcONE5-Vm4kRtHeIsti0WVY8j0cAoDb4gYeO9PbyuDbGSayAuA0YKJFbG3vvMd4IdlKbww_4nmlfjRgZRZuOtrJhh7u6-ErLmtOYPC9QUd-OewDhP-PA=w2030-h1142-v0
+
+14fcfe61-e86c-47b5-a0c7-4bd8bdb8882d
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv279wyQjMSvS-wnK-P6jEhAnJrh-RnMTH8kSkF2IQVafFCluqVbx5jzE2IkWOFDklwdotOj4FPBkj94yhpoy6z5vW4ayUFLg9x10S7JYUW8jiGZtuWuwXObEcdZ3XGnHbQhe8OE=w2030-h1142-v0
+
+1c36bbae-d8b2-42e0-9750-0e455a008f6f
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv1jurH7jJp9Ka_X16f4pMMKTCP93SsW7LOTi07-erWjVAmBnNmt7bAIH47ZaSX66Jm6ZXz2gWFJaeYe4WSIfvuQ2F7CIU0lWtXWKlskdi_einzOZsmYyFe4GE7huN8t8DlUS0Zgpg=w2030-h1142-v0
+
+de9c29a2-5eef-4ead-9af6-e6afda3c86a2
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv2eWOgZaJMxE_r5HLrOHovdtaodi5i4D1eRb6XK-lJJO02lpfY7hTuzC6M8Z2K91MPTjjbEgRS55Wl79ZSq5ilCp702yyBWC7e6Ub_Mc8ktpdyZDx1U5_ZRH_Dyp49zlMoJBOb-jw=w2030-h1142-v0
+
+d1d66b95-2b6a-4c89-b611-0d569410b67f
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv2kewI9W-rUwDQSYvh7JOBcVFCB-ax-HzCwKEtSMbhqtTx_huXOzflMd6E4Bll85J5zlCaB6hjM01ehf-bb7kBd_6bPgRNqiJLKtMBgow-Ut4NyQSIg6V5qPNMifO5mW-qXBD2RXw=w2030-h1142-v0
+
+ee300b6f-ccde-4c61-8aff-d19ef9421c26
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv0jAdIocJGpzI5pOPhVxSuxa2Z2isPTHyoYqAez35tRhItQg_Qf5jiv-WGlXSGhPZuC_gGY3C_FK01Mrt21IJUwCmBNMvCsxnMCkPwF1wmYWW-bl94Cvec-fDqVcNb0RusXuRAyjw=w2030-h1142-v0
+
+0c29f0c8-53a0-44eb-8f66-d10c9445c819
+
+https://lh3.googleusercontent.com/notebooklm/ABzcPv37fVYptxAEFQLpfV3BWc_i0Zjm8EN42QOTtYJ2pvQMWlIKASEG180y6Ye70m8GYpA_M12R1miFIzqLiCxsCL3FkwPl18Q_jFpmsLNFFjPrKZ-dGoRvN2am6Pp1GoONLNlk6vn6sA=w2030-h1142-v0
+
+a6728ba8-9e5e-49af-b7cc-7a3529f99b6e
